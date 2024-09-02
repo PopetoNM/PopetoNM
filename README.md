@@ -1,0 +1,5 @@
+-  Hi, I’m @PopetoNM, but you can call me Plamen
+-  I’m interested in learning new technologies and AI
+-  My hobbies are :FPV drone flying, sports , coding and gaming
+-  I’m currently learning how to use cursor and learning how to fly an FPV drone
+-  How to reach me:Find out yourself
